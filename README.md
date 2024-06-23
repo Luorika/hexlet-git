@@ -1,0 +1,1 @@
+Hi, funny tanuki!
